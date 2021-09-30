@@ -1,0 +1,1 @@
+# ducky-script-converted-to-python-script-windows-defender-disable-for-windows-10-pro-only
